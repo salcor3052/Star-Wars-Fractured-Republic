@@ -1,0 +1,8 @@
+# Mandalorian Protectorate
+
+![][image20]  
+With a lengthy history of non-conformity, few in the galactic community were surprised that Mandalore refused to join the Galactic Republic after the defeat of the First Order. What was surprising was the announcement that Mandalore would open its borders and lands to any orphaned people who wished to emigrate there. The First Order left entire worlds in shambles and refugees scattered throughout the galaxy. These transients were invited to settle on Mandalore and its allied systems, creating a population boom for those worlds. Within ten years, Mandalore went from a population of ten thousand to over six million. Today, more than seventeen billion beings call the Mandalorian Protectorate home.
+
+After a period of rebuilding, the Mandalorian Protectorate began to exert influence on the galactic community. Armored representatives from the Protectorate began to travel throughout the galaxy serving as ambassadors, mercenaries, bounty hunters, and even peacekeepers. MandalMotors, a leading manufacturer of robust vehicles and starships, has literally risen from the ashes of Mandalore and has claimed a significant stake in the galactic market.
+
+Some politicians whisper that the Mandalorians are preparing to launch an attack on their neighbors, and that their benign nature is a front for reconnaissance and shadow operations. A few have even recommended a first strike against Mandalore, to stamp out the threat of a new Mandalorian War. The Mandalorians either don’t know about these discussions, or don’t care and are confident in their ability to handle any would-be aggressors. 
