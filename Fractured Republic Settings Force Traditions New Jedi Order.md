@@ -1,0 +1,23 @@
+# New Jedi Order
+
+# New Jedi Order
+
+![][image31]
+
+Brought nearly to the brink of extinction, the New Jedi Order has recovered in the past century. Jedi Master Rey Skywalker began training new students at several locations throughout the galaxy including [Tatooine](https://app.legendkeeper.com/a/worlds/clmywn5qlc9u70842gmlc344a/cln27kdef004q033c582t337f), [Ajan Kloss Temple](https://app.legendkeeper.com/a/worlds/clmywn5qlc9u70842gmlc344a/clnc4gvg00003356mdt6qneqy), and [Ahch-To](https://app.legendkeeper.com/a/worlds/clmywn5qlc9u70842gmlc344a/clnc4hrgu0004356md9pvqg5w). Each year the number of Jedi has grown. Where once there was but one Jedi, now there are close to five hundred. There are still too few Jedi to reasonably protect the entire galaxy, and most galactic citizens still consider Jedi nothing but legends. However, stories still make rounds across the galaxy of desperate and downtrodden beings saved from disaster by heroes wielding lightsabers and performing impossible, super-powered feats.
+
+# **The Role of the New Jedi Order**
+
+Master Rey Skywalker believed that the galaxy needs the Jedi Order. The Jedi represent balance, and overall has worked in the interest of galactic peace. They are mediators, peacekeepers, and aid givers. One aspect Master Rey encouraged was for her students to follow their dreams and aptitudes (and the will of the Force). All Jedi are trained in the basics of Force use and weapons (including lightsabers), but their training varies based on the interests and talents of the student. Several Jedi serve the Order and galaxy at large as scientists, botanists, anthropologists, zoologists, and physicists. They are engineers and artists, mediators and doctors. They are also soldiers and pilots, and use their martial talents to protect the vulnerable and stand fast against the Dark Side.
+
+Because of this, and Master Rey’s relationship with their leaders, the Jedi Order has a close connection with the [Galactic Rangers](https://app.legendkeeper.com/a/worlds/clmywn5qlc9u70842gmlc344a/clmz00wcx0075033canpu1et4). There are several Jedi padawans, knights, and even a few masters among the ranks of the Lanterns. The two groups work side by side, working in concert for the betterment of the galaxy. It was Master Rey’s suggestion to General Dameron to allow for more non-combat roles among the Lanterns, a suggestion Dameron took to heart and implemented.
+
+# **The Cosmic Force**
+
+Master Rey Skywalker’s view of the Force differs much from that of her masters. Rey has seen and experienced the Light Side and the Dark Side of the Force, and as such has embraced the will of the Cosmic Force. In her view, the Jedi were meant to be instruments of the Force, and by opening oneself to the Will of the Force a Jedi can accomplish feats they otherwise might  not have. This is what allowed Rey to hold her own against Kylo Ren in their first duel, and explains her rapid growth in power over such a short time. Tapping into the Cosmic Force allowed her to draw on the power of the entire Jedi Order \-- 25,000 years of knowledge and Force aptitude \-- and vanquish Darth Sidious on [Exegol](https://app.legendkeeper.com/a/worlds/clmywn5qlc9u70842gmlc344a/clmz0xrwv000u356mqiq1swkg).
+
+This view and outlook had a notable effect on Master Rey’s teaching and instruction. Rey studied the ancient Jedi texts she rescued from knowledge and inspiration, but recognized that much of the information in those texts are bound in dogma and tradition. As the only Jedi in the galaxy, Rey elected to start anew, to take the teachings of the old Jedi Order and merge them with a new style and way. In Rey’s Jedi Order, anyone who is willing and able to open themselves to the Force is welcome at the Jedi Academy on [Ahch-To](https://app.legendkeeper.com/a/worlds/clmywn5qlc9u70842gmlc344a/clnc4hrgu0004356md9pvqg5w). Citing her own masters as exemplars \-- Luke Skywalker and Leia Organa Solo \--, Master Rey would train anyone who was willing, of any age. 
+
+There is wisdom in the Jedi tradition of starting training before a certain age, and never higher. Younger minds are more open to new concepts, and are not bogged down with adult matters and worries. These barriers can be overcome, as Rey and the Skywalkers have shown. This led to a more open policy towards teaching students of any age, the only requirement being they be willing to learn. This attitude has produced several prominent and note-worthy Jedi Knights over the years. However, in some cases it was a barrier that could not be overcome by the learner; several Jedi students washed out, left the Academy in frustration, or even fell to the Dark Side.
+
+![][image32]
