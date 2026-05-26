@@ -1,0 +1,3 @@
+# Independent Systems
+
+The galaxy is a vast space with millions of inhabited worlds. Over the millennia, systems have banded together to form great empires and alliances. Still, there are worlds that prefer to remain independent. In some cases these worlds have a fiercely independent people who resist any attempts to absorb their culture into another. In other instances, the world is simply not valuable enough to the galactic powers to be worth the effort.

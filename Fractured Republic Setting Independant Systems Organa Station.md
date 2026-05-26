@@ -1,0 +1,13 @@
+# Organa Station
+
+![][image23]
+
+Organa Memorial Station (or as the Rangers call it, "The General") is a gigantic, spherical space station built from pieces of three different Death Stars, orbiting near the shattered remains of the planet Alderaan. In 5 ABY, debris from the Death Star was collected by the New Republic, under orders from Princess Leia Organa, to use to build a space station over the ruins of Alderaan. The former plan was to scrap the debris, but Senator Organa used her political connections to see that it was put to good use.
+
+Construction of the yet-named space station was delayed several decades, the project held up in sub-committee budget meetings, until after the First Order-Resistance War. When the Republic failed to restore itself to the pre-war status, and new galactic powers rose, it became apparent that a neutral territory was needed to enable the new governments to mediate disputes peacefully. Additionally, the Galactic Rangers would need a similar location as their central base of operations. Due to skillful negotiations by representatives of the New Republic, Free Commerce Consortium, Corellian Alliance, and the Nal Niboba Union, the proposed Alderaan space station project moved forward. Additional material was gathered from ruins of the second Death Star scattered through the Endor system. An additional cost-saving measure came when the skeletal structure of a third Death Star was discovered in the Maw Cluster. During it's dedication ceremony, the station was officially named the Organa Memorial Station.
+
+Since it's dedication, Organa Station has been home to the Interstellar Council, an ambassadorial committee made up of representatives from all recognized galactic powers. The Council meets in a secure structure at the dorsal pole of the station. The Rangers maintain their home base aboard Organa Station as well. Their facilities are located with the Funnel, the long tapered cylindrical structure that would have been the original Death Star's superlaser housing.
+
+Because Organa station is built from three different Death Stars, it's systems are not fully compatible with each other. An effort was made during construction and renovation, but corners had to be cut as the sponsoring galactic powers inevitably slashed the station's construction budget. As such, only twenty seven percent of the station is habitable, with large sections still exposed to vacuum. Defensive systems aboard Organa Station are adequate enough to deter smaller pirate attacks and incoming asteroids, but not much else. In spite of this, there is still sufficient space aboard Organa Station to fulfill its purpose and serve as a home to tens of thousands of beings.
+
+(Non Rangers call it "the Core")
